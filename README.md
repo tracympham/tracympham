@@ -1,4 +1,4 @@
-## hi! thanks for checking in!  ପ(๑•ᴗ•๑)ଓ ♡ <br/> 
+## hi! nice to meet you!   ૮₍ ˶ᵔ ᵕ ᵔ˶ ₎ა <br/> 
 
 <img align="right" width="600" height="370" src="https://github.com/tracympham/tracympham/blob/main/myMelody.gif">
 
@@ -6,5 +6,13 @@
 - 🍓 my name is tracy! 
 - 🎧 undergrad at UW
 - 🍡 majoring in computer science 
-- 🍧 learning unity, aseprite, & blender
+- 🍧 learning c++, java, & python
 - 🍵 stay hydrated <br/> 
+
+     ૮꒰ ˶• ༝ •˶꒱ა  🧋  "૮₍ ˶•⤙•˶ ₎ა
+          
+          
+          
+          
+          
+          
