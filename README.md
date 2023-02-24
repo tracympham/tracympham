@@ -7,6 +7,7 @@
 - 🎧 undergrad at uw
 - 🍡 majoring in computer science 
 - 🍧 learning c++, java, & python
+- 🇻🇳 love traveling
 - 🍵 stay hydrated <br/> 
 
      ૮꒰ ˶• ༝ •˶꒱ა  🧋  "૮₍ ˶•⤙•˶ ₎ა
