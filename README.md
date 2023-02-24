@@ -4,7 +4,7 @@
 
 ### a bit about me:
 - 🍓 my name is tracy! 
-- 🎧 undergrad at UW
+- 🎧 undergrad at uw
 - 🍡 majoring in computer science 
 - 🍧 learning c++, java, & python
 - 🍵 stay hydrated <br/> 
